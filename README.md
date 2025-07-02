@@ -1,4 +1,4 @@
-# wholesale-Stretch-Film-Wrap-in-Tustin | BluerosePackaging
+# Wholesale Stretch Film Wrap in Tustin | BluerosePackaging
 
 Order wholesale stretch film and wrap in Tustin from Bluerose Packaging. Get durable, high-performance stretch wrap in bulk with fast delivery and competitive pricing for all your packaging needs.
 
